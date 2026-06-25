@@ -22,8 +22,8 @@
 
 **Aashirwad Enterprise India** is a premier sourcing partner for plastic raw materials based in Ahmedabad, Gujarat. From a specialized local trader to a nationwide powerhouse in polymer distribution, we've built our legacy on an unwavering commitment to quality and logistical precision.
 
-- 🏗️ **10,000+** Tons Supplied Annually  
-- 🤝 **250+** Manufacturing Partners  
+- 🏗️ **100+** Tons Supplied Annually  
+- 🤝 **50+** Manufacturing Partners  
 - ✅ **100%** Quality Assurance  
 
 ---
